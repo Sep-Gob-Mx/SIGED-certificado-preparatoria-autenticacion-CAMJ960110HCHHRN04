@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAMJ960110HCHHRN04
+CAMJ960110HCHHRN04
